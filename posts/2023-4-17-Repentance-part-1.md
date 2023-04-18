@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Repentance, Part 1"
+title:  "Forgiveness, Part 1"
 ---
 
 In class I am reading the entirety of the New Testament and focusing on the term repentance. 
