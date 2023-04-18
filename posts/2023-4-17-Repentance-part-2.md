@@ -3,17 +3,14 @@ layout: post
 title:  "Repentance, Part 2"
 ---
 
-In class I am reading the entirety of the New Testament and focusing on the term repentance. 
+> Confessing their sins, they were baptized by him in the Jordan River. - Matthew 3:6
 
-Throughout the Old and New Testament repentance is shown through a variety of ways. In the Old Testament repentance is done through animal sacrifice. Every year, the sins of Israel are put on the head of a goat (a scapegoat) who is then exiled from the people. This is symbolic of Jesus Christs great sacrifice for us.
+> I baptize you with water for repentance. But after me comes one who is more powerful than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire. - Matthew 3:11
 
->He is to lay both hands on the head of the live goat and confess over it all the wickedness and rebellion of the Israelites—all their sins—and put them on the goat’s head. He shall send the goat away into the wilderness in the care of someone appointed for the task.  
+While John may baptize you with water for repentance, Jesus Christ can change you. This life is all about becoming like Him and becoming a better person. Eventually coming to the point where you will be sanctified and never wish to sin again. 
 
-> The goat will carry on itself all their sins  to a remote place; and the man shall release it in the wilderness. - Leviticus 16:21-22
+After Jesus had died he appeared to Saul and called him to repentance.
 
-Then in Mark, baptism begins to be introduced as a way to repent of your sins and to become cleansed from your iniquity.
+> “I am Jesus, whom you are persecuting,” he replied. “Now get up and go into the city, and you will be told what you must do.” - Act 9:5-6
 
-> And this was his message: “After me comes the one more powerful than I, the straps of whose sandals I am not worthy to stoop down and untie. I baptize you with water, but he will baptize you with the Holy Spirit.” - Mark 1:7-8
-> “The time has come,” he said. “The kingdom of God has come near. Repent and believe the good news!” - Mark 1:15
-
-In the end, God has prepared a way to bring us back to Him. Through the atonement of Jesus Christ, we are able to place our sins upon Him and be free from the burden of sin.
+God will come to us when we need him most, and we just need to not ignore Him. Jesus Christ and Heavenly Father love us and want the best for us.
