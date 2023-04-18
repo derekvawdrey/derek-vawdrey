@@ -1,3 +1,8 @@
+---
+layout: post
+title:  "Forgiveness"
+---
+
 Today as I was helping my brother check on his car I had an interesting experience that made me reflect on the revelations of God. 
 
 I walked to his car and checked on it to make sure it was alright. Then I turned around and started walking back. As I was walking back I recieved a feeling I should go back and check on the car again. 
