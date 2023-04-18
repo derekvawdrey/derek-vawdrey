@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Repentance"
+title:  "Simple Revelation"
 ---
 
 Today as I was helping my brother check on his car I had an interesting experience that made me reflect on the revelations of God. 
